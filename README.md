@@ -2,4 +2,4 @@
 
 Name: Jerry Wu
 
-I love eating and sleeping!
+I love sleeping!
